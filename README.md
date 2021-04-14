@@ -1,1 +1,0 @@
-# fischeer-arproduction-alphazxdgchm
